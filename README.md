@@ -15,3 +15,6 @@ Happy writing and reading!
 
 1. Short Stories
    - [500 Creative Prompts](./short_stories/creative_prompts.md)
+   - [Children's Stories](./short_stories/childrens_stories)
+   - [Being Silly](./short_stories/being_silly.md)
+   - [Brainstormed Ideas](./short_stories/brainstormed_ideas.md)
