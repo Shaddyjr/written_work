@@ -58,3 +58,57 @@ you're an alien?
 Can you read my thoughts?
 
 people deny the god to their face
+
+# The Doctrine
+
+This Doctrine is inherently incomplete and flawed, yet we must start somewhere.
+At the time of this writing, the words herein were written by some of the brightest minds we have to offer, but we recognize we are flawed and biased beings.
+As we must strive for a more perfect union we refuse to require perfection at the expense of making progress.
+As many of our writers have found, a difficult goal often serves as a catalyst for improvement regardless of whether or not the goal is ever achieved.
+
+As a collective, we've decided the best way to convey meaning is through stories.
+Storytelling is an ancient tradition of our people and the Doctrine is built on this old foundation.
+
+As a collective, we've decided the best way to convey meaning is by keeping the Doctrine simple and short.
+The majority of people are simple folk and this Doctrine is meant for all.
+
+As a collective, we've decided the best way to convey meaning is to distribute the Doctrine in many languages.
+It is our hope these words will resonate throughout our collective histories as they are our stories all.
+
+The reader should be mindful these stories happened in their own time and place and written about later, likely in a different time and place.
+As a collective, we want to adhere to the truth. Despite our best efforts, we have failed to do so. Understanding is paramount - the details are secondary.
+
+The reader should be mindful there may be doubt as to whether these stories really happened or not.
+As a collective, we believe truth is truth regardless of whether or not it lies in our reality or fiction. Understanding is paramount - how understanding is achieved is secondary.
+
+The reader should be mindful these words were written by flawed men. Only the Fool would blindly follow what they read in a book - the Doctrine is no exception.
+As a collective, we have many lessons to offer from our combined experience. However, this should not be confused with divinity. Our lessons were hard earned though many failings, but ultimately it is You who must combine Your own experiences to make any sense of it. Understanding is paramount - what is written in the Doctrine is secondary.
+
+# 10 short stories
+
+- Multiple messages? 1 life lesson per story
+- Combination makes is harder to distill
+- Is 10 too much?
+- 9 feels right...
+- No authors per book, mutliple authors. MOdified adages
+
+- Book of Growth Mindset
+- Book of Computational Thinking
+- Book of Deliberate Practice
+
+- Book of Critical Thinking
+- Book of Problem Solving
+- Book of Media Literacy
+
+- Book of handling complex feelings
+- Book of Empathy
+- Book of Love
+
+- Add in completely non-sensicle rule as test
+
+# Scenarios
+
+10 practical thought experiments to guide children in becoming better decision makers
+
+- Connect action with possible outcomes
+- No "right" or "wrong" answers
